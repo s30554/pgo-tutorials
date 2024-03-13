@@ -1,3 +1,3 @@
-stefan> <kardasz
+stefan kardasz
 12c
 s30554
